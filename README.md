@@ -1,1 +1,1 @@
-# Ju
+# ari-rang-school
